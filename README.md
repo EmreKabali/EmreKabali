@@ -13,8 +13,8 @@
 
 ### Connect with me:
 
-Website:https://www.dolutarafi.com/
-Mail: Kabali68@gmail.com
+Website:https://www.kabalidev.com/
+Mail: contact@kabalidev.com
 
 ### My Youtube Channel
 https://www.youtube.com/channel/UC5uATNRJRCrXrJDf1zKwMrg
